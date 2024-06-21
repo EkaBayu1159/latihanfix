@@ -1,0 +1,2 @@
+# latihanfix
+gausa wes
